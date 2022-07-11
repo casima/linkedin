@@ -1,7 +1,7 @@
 ## Curriculo 🧷
 
 :link:
-[Linkedin](https://br.linkedin.com/in/casima)
+[Linkedin](https://www.linkedin.com/in/casima)
 
 
 
